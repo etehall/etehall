@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @etehall
+- 👋 Hi, I’m M. Allen Hall
 - 👀 I’m interested in TTRPGs, especially D&D and Mörk Borg
 - Find me on Twitter @M_Allen_Hall
 - m-allen-hall.itch.io
